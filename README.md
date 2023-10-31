@@ -1,1 +1,0 @@
-# BaH-Nova-Gera-o
